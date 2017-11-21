@@ -12,9 +12,9 @@ A record of my sport challenge
 - 19/11/2017 : 14 * 30 = 420 push ups
 - 20/11/2017 : 10 * 30 = 300 push ups
 - 21/11/2017 :
-  - 8 * 30 = 240 push ups
+  - 12 * 30 = 360 push ups
   - 5 km run, 5'26", 27:18, 17 M, 294 Cal
-  
+  - Body building, 50 minutes, biceps, pecs, deadlift, squat
 
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
