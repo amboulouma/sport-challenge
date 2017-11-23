@@ -16,7 +16,12 @@ A record of my sport challenge
   - 5 km run, 5'26", 27:18, 17 M, 294 Cal
   - Body building, 50 minutes, biceps, pecs, deadlift, squat
 - 22/11/2017 :
-  - 3 * 30 = 90 pushs ups
+  - 9 * 30 = 270 pushs ups
+  - Workout
+- 23/11/2017 :
+  - Running, Cycling
+  - 4 * 30 = 120 push ups, squats, abs
+  - 
   
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
