@@ -20,7 +20,7 @@ A record of my sport challenge
   - Workout
 - 23/11/2017 :
   - Running, Cycling
-  - 4 * 30 = 120 push ups, squats, abs
+  - 6 * 30 = 180 push ups, squats, abs
   - 
   
 - 2/11/2017 :  * 30 =  pushs ups
