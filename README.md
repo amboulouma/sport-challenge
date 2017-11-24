@@ -23,6 +23,9 @@ A record of my sport challenge
   - 10 * 30 = 300 push ups, squats, abs
   - Workout
 - 24/11/2017 :
+  - Running, cycling
+  - Workout
+  - 7 * 30 =  pushs ups, squats, abs
   
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
