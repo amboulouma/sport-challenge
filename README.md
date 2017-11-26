@@ -26,6 +26,11 @@ A record of my sport challenge
   - Running, cycling
   - Workout
   - 7 * 30 =  pushs ups, squats, abs
+- 25/11/2017 :
+  - 7 * 30 =  pushs ups, squats, abs
+  
+- 26/11/2017 :
+  - 3 * 30 =  pushs ups, squats, abs
   
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
