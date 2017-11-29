@@ -35,6 +35,9 @@ A record of my sport challenge
 - 28/11/2017 :
   - 6 * 30 = 180 pushs ups, squats, abs
   - Running 5k
+- 29/11/2017 :
+  - 2 * 30 = 60 push ups, abs
+  
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
 
