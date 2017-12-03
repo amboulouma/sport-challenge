@@ -39,6 +39,8 @@ A record of my sport challenge
   - 2 * 30 = 60 push ups, abs
 - 01/12/2017 :
   - 6 * 30 = 180 push ups, abs
+- 3/12/2017 :
+  - 6 * 30 = 180 push ups
   
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
