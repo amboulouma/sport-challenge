@@ -42,7 +42,8 @@ A record of my sport challenge
 - 3/12/2017 :
   - 6 * 30 = 180 push ups
 - 4/12/2017 :
-  - 1 * 30 = 180 push ups
+  - 4 * 30 = 180 push ups
+  - Workout
   
 - 2/11/2017 :  * 30 =  pushs ups
 # Notes
